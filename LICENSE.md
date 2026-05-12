@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with custom sandwich attack bot | snipe-list-management + private-RPC-nodes, the #1 sandwich attack bot. Includes snipe-list-management and private-RPC-nodes
 
 
 
